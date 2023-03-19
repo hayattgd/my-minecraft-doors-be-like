@@ -3,4 +3,4 @@
 tempolary repo or use for later...
 
 ---
-rush image by lightning_splash / got from wiki
+some stuff are from doors yes
